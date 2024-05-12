@@ -1,4 +1,4 @@
-#### Hey, 👋 I'm Ayush Raj Gupta
+## Hey, 👋 I'm Ayush Raj Gupta
 
 
 # 💫 About Me:
